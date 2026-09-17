@@ -1,1 +1,1 @@
-My name is faridah' i finished from Alhikmah University ilorin.i'm a psychologist.
+My name is faridah. i finished from Alhikmah University ilorin.i'm a psychologist.
